@@ -1,1 +1,0 @@
-# Pure-Hyprland-Wallpapers
